@@ -8,7 +8,7 @@
 
 ## i have no idea to shown
 
-![uma musume low cortisol] (https://tenor.com/bpifnzEaooP.gif)
+![uma musume low cortisol](https://tenor.com/bpifnzEaooP.gif)
 
 
 ##### Programming Languages
