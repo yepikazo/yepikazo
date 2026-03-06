@@ -8,8 +8,8 @@
 
 ## i have no idea to shown
 
-![lowcortisol](https://tenor.com/bpifnzEaooP.gif)
-<div class="tenor-gif-embed" data-postid="1044120754729731909" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/agnes-tachyon-uma-musume-low-cortisol-gif-1044120754729731909">Agnes Tachyon Uma Musume GIF</a>from <a href="https://tenor.com/search/agnes+tachyon-gifs">Agnes Tachyon GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![lowcortisol](https://media1.tenor.com/m/Dn12S2BHR0UAAAAd/agnes-tachyon-uma-musume.gif)
+
 
 ##### Programming Languages
 <p align="center">
