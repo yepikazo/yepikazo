@@ -3,15 +3,14 @@
 </div>
 
 ## Hello there, Im Yepikazo
-#### im interest to RTFM's method
+#### im interest to RTFM's method and i use Arch btw
 
-
-## i have no idea to shown
+#### welp, i have no idea to shown
 
 ![lowcortisol](https://media1.tenor.com/m/Dn12S2BHR0UAAAAd/agnes-tachyon-uma-musume.gif)
 
 
-##### Programming Languages
+### Programming Languages
 <p align="center">
   <a href="https://skillicons.dev">
     <img src="https://skillicons.dev/icons?i=html,css,js,php,java,lua,bash" />
