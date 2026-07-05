@@ -5,7 +5,7 @@
 ## Hello there, Im Yepikazo
 #### im interest to RTFM's method and i use Arch btw
 
-##### welp, i have no idea to shown, i knew this is a bad profile i'll repair this after "leveling"
+##### welp, i have no idea to shown, i knew this is a bad profile i'll repair this after up my skill
 
 ![lowcortisol](https://media1.tenor.com/m/Dn12S2BHR0UAAAAd/agnes-tachyon-uma-musume.gif)
 
